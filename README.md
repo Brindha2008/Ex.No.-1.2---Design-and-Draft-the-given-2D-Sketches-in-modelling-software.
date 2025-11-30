@@ -49,3 +49,29 @@ DATE:-30/11/2025
  
  ## RESULT
  Thus the given sketch is drawn and drafted using fusion 360 tool.
+ .
+ .
+ .
+ .
+ ..
+
+ .
+ ..
+ .
+ ..
+ .
+
+ .
+ ..
+ .
+ .
+
+ .
+ .
+ .
+
+ .
+ .
+ .
+ .
+ .
